@@ -1,5 +1,5 @@
 - 👋 Olá, sou @ Mahgames24
-- 👀 Estou interessado em Jogos de diversos generos da Familha Xbox
+- 👀 Estou interessado em Jogos de diversos generos da familia MicroSoft
 - 🌱 Atualmente estou aprendendo Sistema de Informação
 - 💞️ Busco em me tornar Streamer
 - 📫 Como entrar em contato comigo atraves dos canais:
