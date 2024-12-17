@@ -4,7 +4,7 @@
 - 💞️ Busco em me tornar Streamer
 - 📫 Como entrar em contato comigo atraves dos canais:
 - Twitch: unboundracerbr
-- Discord:unboundracer_br
+- "Discord":unboundracer_br
   GitHub: Mahgames24
 
 <!---
